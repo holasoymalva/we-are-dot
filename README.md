@@ -1,2 +1,2 @@
-# we-are-dot
+# WE ARE .
 WE ARE . 
